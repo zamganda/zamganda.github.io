@@ -1,4 +1,5 @@
-# Mabuhay! Welcome to zamganda.github.io
+# *WELCOME TO LOVERS' ROCK*
+the place to go for elite music and vibes
 ### top 10 songs to listen to about *love*
 these bangers can help you get through the world of the romantics!
 
