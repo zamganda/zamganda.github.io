@@ -1,4 +1,4 @@
-# Mabuhay! welcome to zamganda.github.io
+# Mabuhay! Welcome to zamganda.github.io
 ### top 10 songs to listen to about *love*
 these bangers can help you get through the world of the romantics!
 
