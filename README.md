@@ -4,25 +4,25 @@ the place to go for elite music and vibes
 these bangers can help you get through the world of the romantics!
 
 
-1. *For the First Time by Mac Demarco*
+- *For the First Time by Mac Demarco*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/cZCm_i6YvAk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-2. *Honey by Boy Pablo*
+- *Honey by Boy Pablo*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/8GQ3iqkwT3I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-3. *Cherry Wine by Grent Perez*
+- *Cherry Wine by Grent Perez*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1o00J04ThXQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-4. *Fall Inlove Alone by Stacey Ryan*
+- *Fall Inlove Alone by Stacey Ryan*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Aw1eOFJiDtE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-5. *Those Eyes by New West*
+- *Those Eyes by New West*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/b_CpWmkhwq0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-6. *Here With Me by d4vid*
+- *Here With Me by d4vid*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/B7Y4LHbpXv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-7.  *Get You by Daniel Ceasar ft. Kali Uchis*
+-  *Get You by Daniel Ceasar ft. Kali Uchis*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uQFVqltOXRg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-8. *Visions of Gideon by Sufjan Stevens*
+- *Visions of Gideon by Sufjan Stevens*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IDgR3FNlsUM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-9. *Good Looking by Suki Waterhouse*
+- *Good Looking by Suki Waterhouse*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wV1pBef4k44" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-10. *Show Me How by Men I Trust*
+- *Show Me How by Men I Trust*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/OZRYzH0Q0pU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
  <33
