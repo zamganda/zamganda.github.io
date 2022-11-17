@@ -29,5 +29,4 @@ these bangers can help you get through the world of the romantics!
 
 "Music is definitive of our own personal journeys, they mirror the acquired experiences we have everyday and immortalize them to tangible pieces of art." - Irzam Fucio
 
-![a9fffde56e0b8015009fa90e2e39e6ec](https://user-images.githubusercontent.com/118236834/202226170-ddfa2816-b890-4a07-b962-8a9c2c1aa8cc.jpg) !
-[84e472959fccf4f0110e25bb64fea731](https://user-images.githubusercontent.com/118236834/202227165-7e300c03-f532-4f5c-8d60-658178093acc.jpg)
+![a9fffde56e0b8015009fa90e2e39e6ec](https://user-images.githubusercontent.com/118236834/202226170-ddfa2816-b890-4a07-b962-8a9c2c1aa8cc.jpg)![84e472959fccf4f0110e25bb64fea731](https://user-images.githubusercontent.com/118236834/202227165-7e300c03-f532-4f5c-8d60-658178093acc.jpg)
