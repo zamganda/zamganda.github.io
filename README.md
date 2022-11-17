@@ -3,6 +3,8 @@ the place to go for elite music and vibes
 ### top 10 songs to listen to about *love*
 these bangers can help you get through the world of the romantics!
 
+_______________________________________________________________________________________________________________________________________________________________
+
 1. *For the First Time by Mac Demarco*
 <iframe width="560" height="315" src="https://www.youtube.com/embed/cZCm_i6YvAk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 2. *Honey by Boy Pablo*
