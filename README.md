@@ -38,7 +38,9 @@ _ _ _
 **Here With Me by d4vid**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/B7Y4LHbpXv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 This song is from one of gen-z's most up and coming artists of the year. The song tackles about how bny just being with someone can help us get t hrough all the things life throws at us and how simple our desires can be due to love.
+
 _ _ _
+
 
 **Get You by Daniel Ceasar ft. Kali Uchis**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uQFVqltOXRg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
