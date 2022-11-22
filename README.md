@@ -19,7 +19,7 @@ _ _ _
 
 **Cherry Wine by Grent Perez**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1o00J04ThXQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-Cherry Wine is the perfect song wjhen you meet someone you so badly want to approach and have a connection with. The Filipino-American's song provides with us a playful, soulful, and dance-worthy song to jam to.
+Cherry Wine is the perfect song when you meet someone you so badly want to approach and have a connection with. The Filipino-American's song provides with us a playful, soulful, and dance-worthy song to jam to.
 
 _ _ _
 
